@@ -1,1 +1,0 @@
-# layclaimtocommonsense.github.io
